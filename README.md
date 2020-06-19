@@ -1,1 +1,0 @@
-# vishaal yalamanchali's homepage
